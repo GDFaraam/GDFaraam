@@ -1,5 +1,5 @@
 
-# Hello! Welcome to my Profile / KANTUTAN NA sarap NI ANDREI
+# Hello! Welcome to my Profile 
 
 ### Aspiring Game Developer & Software Developer
 
